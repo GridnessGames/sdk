@@ -5,7 +5,7 @@
 🌐 Website: https://gridness.games/
 🐦 X (Twitter): https://x.com/GridnessGames
 
-CA pump.fun : xxxxxxxxxxpump
+CA pump.fun : 5qHHvzn6noKmBEsemywAKSwY5DQVnLisUy9zArUhpump
 ---
 
 ## 🚀 Overview
